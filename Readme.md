@@ -10,7 +10,7 @@
 
 - 📧 How to reach me? **Connect to me via Email [NAVIN](mailto:krnaveenraj809@gmail.com)**
 
-- ⚡ Fun fact: **I am Black Belt in Kyokushin Karate**
+- ⚡ Fun fact: **I am yellow Belt in Kyokushin Karate**
 
 
 
